@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gg1c
+- 👀 gosto de rock
+- 🌱 amo batata 
+- 💞️ amo dormir 
+- 📫 odeio o bolsonaro
